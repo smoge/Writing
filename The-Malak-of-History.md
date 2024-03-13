@@ -35,3 +35,43 @@ marked by catastrophes, they murmur of shared resilience,
 confronting the darkness, not united but as shards of light,  
 a mosaic where paths and voices blend,  
 unveiling the Malak's powerless fear.
+
+--
+
+Ouçam,  
+vocês que deixaram escapar a azulidão do céu.
+
+Nos espaços onde os ecos soltam suas mãos,  
+uma narrativa sombria se desenrola, vozes entrelaçadas em raqs intricados,  
+caos, não uma entidade singular mas fragmentada,  
+uma fome, uma mescla de inúmeras existências.  
+O Malak da História, Angelus Novus,  
+tece contos de perda dentro de um caleidoscópio desesperador,  
+seus espíritos, descompassados, sussurram no vazio,  
+espelhos quebrados refletem nosso escurecimento coletivo.
+
+Alcançando, dedos que soletram divisão, não unidade,  
+encontrando calma dentro de tempestades invocadas,  
+reimaginando, no silêncio de uma vida sufocada,  
+uma noite coletiva, fraturada, porém inteira.
+
+Alam — não apenas uma única tristeza, mas um espetáculo disperso,  
+projetando nossa devastação compartilhada em caminhos diversos,  
+à medida que a tempestade se aproxima, buscando abrigo, lado a lado, ainda que sozinhos,  
+compreensão quebrada, engolida pela obscuridade do medo.
+
+Resistência, fragmentada, tece através de sua narrativa,  
+inundando o contador de histórias e seus contos vazios.  
+Memórias, outrora laços, agora revelam  
+os desejos de um 'nós' complexo, uma construção,  
+através do tempo, dispersos, não juntos,  
+uma melodia surge, não meros ecos, mas o grito do espírito do mundo:
+
+"Onde estão vocês, seus filhos da puta?  
+Vocês continuarão a fingir, a ignorar?"
+
+Observando o ataque implacável à nossa essência coletiva,  
+marcado por catástrofes, murmuram sobre a resiliência compartilhada,  
+confrontando a escuridão, não unidos, mas como fragmentos de luz,  
+um mosaico onde caminhos e vozes se misturam,  
+revelando o medo impotente do Malak.
