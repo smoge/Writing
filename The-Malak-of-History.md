@@ -1,5 +1,8 @@
-Listen,
-to those who’ve forgotten the sky's blue hue.
+# Listen, you who’ve forgotten the sky's blue hue.
+
+
+Listen,  
+you who’ve forgotten the sky's blue hue.
 
 In spaces where echoes unclasp their hands,  
 a dark narrative unfurls, voices entangled in raqs intricate,  
@@ -36,9 +39,11 @@ confronting the darkness, not united but as shards of light,
 a mosaic where paths and voices blend,  
 unveiling the Malak's powerless fear.
 
---
+---
 
-Listen —  
+## Listen —  Sky's forgotten blue whispers.
+
+Listen —    
 Sky's forgotten blue whispers.
 
 Echoes unclasp —  
@@ -74,3 +79,44 @@ Relentless attack, collective essence watched —
 Catastrophes mark, resilience shared whispered.  
 Darkness confronted, light shards —  
 Mosaic, paths voices blend, Malak's fear unveiled.
+
+---
+
+## Listen—whispers  
+
+Listen—whispers  
+Blue, forgotten.
+
+Echoes—unclasp,  
+Spaces—voices, intricate dances.  
+Chaos—fragments,  
+Existences—countless.
+
+Malak spins—  
+Loss, despair, kaleidoscope.  
+Spirits—void, whispers.  
+Mirrors—shattered, dim.
+
+Division reached—not unity,  
+Storms—calm, found.  
+Life—quiet, stifled.  
+Evening—fractured, whole.
+
+Alam—scatters,  
+Devastation—shared, diverse.  
+Storm—shelter, sought.  
+Alone—fear, swallowed.
+
+Resistance—weaves,  
+Narrative—hollow.  
+Memories—reveal,  
+'We'—scattered, complex.
+
+Scream—not echo:  
+"Where—sons of bitches?  
+Ignore—pretend?"
+
+Attack—relentless, watched.  
+Catastrophes—whispered, resilience.  
+Darkness—shards of light, confronted.  
+Mosaic—paths, voices, fear unveiled.
