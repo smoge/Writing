@@ -120,3 +120,43 @@ Attack—relentless, watched.
 Catastrophes—whispered, resilience.  
 Darkness—shards of light, confronted.  
 Mosaic—paths, voices, fear unveiled.
+
+---
+
+
+# Listen—whispers.
+## Blue—forgotten.
+
+- **Echoes**—spaces,
+- **Voices**—dances.
+- **Chaos**—existence.
+
+### Malak—loss,
+#### Despair—kaleidoscope.
+- **Void**—whispers.
+- **Mirrors**—dim.
+
+##### Division—not unity,
+###### Storms—calm.
+- **Quiet**—stifled.
+- **Evening**—whole.
+
+### Alam—devastation,
+#### Diverse—shared.
+- **Shelter**—sought.
+- **Fear**—alone.
+
+##### Resistance—weaves,
+###### Hollow—narrative.
+- **Memories**—'we',
+- **Scattered**—complex.
+
+### Scream—echo:
+#### "Where—ignore?"
+- **Attack**—watched.
+- **Resilience**—whispered.
+
+##### Darkness—light,
+###### Confronted—mosaic.
+- **Paths**—voices,
+- **Fear**—unveiled.
