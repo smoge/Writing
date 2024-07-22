@@ -1,5 +1,4 @@
-
-The four axioms of topology :: Topology's Juicy Skinlessness
+# Topology's Juicy Skinlessness
 
 1. Open intersects open:
    skinless meeting skinless
