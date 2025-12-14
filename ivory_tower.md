@@ -1,4 +1,4 @@
-You can mute Tiago, hit the button, that’s your right  
+You can mute T, hit the button, that’s your right  
 But don’t you trash the ones who coded through the night  
 Fourteen years old, wrote a string quartet  
 Built a score editor 'fore I learned to drive
