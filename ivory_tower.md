@@ -49,4 +49,4 @@ You just ain’t been through it
 You just naive with life  
 One day you gon’ prove it
 
-I’m out. Sto
+I’m out. Stop.
